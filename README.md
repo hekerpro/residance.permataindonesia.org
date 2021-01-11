@@ -1,1 +1,0 @@
-# residance.permataindonesia.org
